@@ -1,0 +1,1 @@
+# MNSU-Assets
